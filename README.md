@@ -2,6 +2,7 @@
 
 우와~!!!!
 
+![job_uranaishi](https://github.com/Promingg/Promingg/assets/168795038/effb555d-1238-404c-8c02-83c966583551)
 
 
 이거 이렇게 사용하는게, 맞는건가?
